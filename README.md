@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Major8acon
-- 👀 I’m interested in Game Deisgn and Development
+- 👀 I’m interested in Game Deisgn and Development... My main specialization is in Technical Art
 - 💞️ I’m looking to collaborate on a Game Project (Board, Card or Video)
